@@ -1,1 +1,0 @@
-# ***Comparacion Mercedes y BMW***
