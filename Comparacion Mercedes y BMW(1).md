@@ -1,28 +1,33 @@
 # ***Comparacion Mercedes y BMW***
 # **Logo de Mercedes**
+### [PAGINA OFICIAL](https://www.mercedes-benz.com/en/)
 ![Logo de MD](https://brandemia.org/contenido/subidas/2021/12/07-mercedes-logo-2009-2011-hasta-hoy-1200x670.jpg)
 # **Logo de BMW**
+### [PAGINA OFICIAL](https://www.bmw.com/es/index.html)
 ![Logo de MD](https://cdn.pixabay.com/photo/2020/01/09/20/34/bmw-4753868_1280.jpg)
 # Autos de Mercedes Benz
 ## *C 200*
 ![Logo de MD](https://octane.rent/wp-content/uploads/2024/08/mercedes_benz_c200_beige_01.jpg)
+### [PRECIO](https://auto.mercadolibre.com.ar/MLA-1506325791-mercedes-benz-c200-avantgarde-20t-184cv-300nm-_JM#polycard_client=search-nordic&position=1&search_layout=grid&type=item&tracking_id=518c9bd7-da8e-446c-89c3-5b84e41c86d7)
 ## *GLE 400*
 ![Logo de MD](https://s3.ecompletocarros.dev/images/lojas/285/veiculos/68440/veiculoInfoVeiculoImagesMobile/vehicle_image_1627454947_d41d8cd98f00b204e9800998ecf8427e.jpeg)
+### [PRECIO](https://auto.mercadolibre.com.ar/MLA-2086758590-mercedes-benz-clase-gle-30-gle400-sport-coupe-4matic-333cv-_JM#polycard_client=search-nordic&position=1&search_layout=grid&type=item&tracking_id=7fdf03b8-d886-4f2c-963a-a64f01f2d166)
 ## *C 63*
 ![Logo de MD](https://cdn.motor1.com/images/mgl/nAylQR/s1/mercedes-amg-c-63-s-e-performance-2023-f1-edition.jpg)
+### [PRECIO](https://auto.mercadolibre.com.ar/MLA-2122252330-mercedes-benz-clase-c-2022-40-c63-s-coupe-v8-twin-turbo-_JM#polycard_client=search-nordic&position=1&search_layout=grid&type=item&tracking_id=3cd2a2e4-0981-499b-b229-41ab50a2fb11)
 # Auto de BMW
 ## *120 i*
 ![Logo de MD](https://cdn.motor1.com/images/mgl/81zQ3/s1/lanzamiento-bmw-120i-sport.webp)
-[PRECIO](https://auto.mercadolibre.com.ar/MLA-1507033769-bmw-serie-1-16-120i-m-package-177cv-_JM#polycard_client=search-nordic&position=1&search_layout=grid&type=item&tracking_id=50e98b01-d73e-44c1-982b-f24ca32c62c4)
+### [PRECIO](https://auto.mercadolibre.com.ar/MLA-1507033769-bmw-serie-1-16-120i-m-package-177cv-_JM#polycard_client=search-nordic&position=1&search_layout=grid&type=item&tracking_id=50e98b01-d73e-44c1-982b-f24ca32c62c4)
 ## *X3*
 ![Logo de MD](https://cdn.motor1.com/images/mgl/q4EMJ/s1/bmw-x3-2021.jpg)
-[PRECIO](https://auto.mercadolibre.com.ar/MLA-2137489648-bmw-x3-30e-2023-20-xdrive-smart-garage-_JM#polycard_client=search-nordic&position=2&search_layout=grid&type=item&tracking_id=6456edaa-9b7a-4785-a709-cb63b0d84642)
+### [PRECIO](https://auto.mercadolibre.com.ar/MLA-2137489648-bmw-x3-30e-2023-20-xdrive-smart-garage-_JM#polycard_client=search-nordic&position=2&search_layout=grid&type=item&tracking_id=6456edaa-9b7a-4785-a709-cb63b0d84642)
 ## *M5*
 ![Logo de MD](https://images.caradisiac.com/logos/3/3/9/8/283398/S0-la-nouvelle-bmw-m5-pese-tres-lourd-y-compris-au-sens-propre-209588.jpg)
 
-[PRECIO](https://auto.mercadolibre.com.ar/MLA-2104768576-bmw-m5-speed-motors-_JM#polycard_client=search-nordic&position=3&search_layout=grid&type=item&tracking_id=8e33e6d5-7c95-4ce0-850c-5d9f7bf9aa54)
+### [PRECIO](https://auto.mercadolibre.com.ar/MLA-2104768576-bmw-m5-speed-motors-_JM#polycard_client=search-nordic&position=3&search_layout=grid&type=item&tracking_id=8e33e6d5-7c95-4ce0-850c-5d9f7bf9aa54)
 
-# BMW X3 vs Mercedes GL 400
+# **BMW X3 vs Mercedes GL 400**
 | Característica                  | BMW X3                                  | Mercedes GL 400 (Clase GL)                |
 |--------------------------------|----------------------------------------|-------------------------------------------|
 | **Precio aproximado**           | 63.415 €                               | 87.075 €                                  |
@@ -88,3 +93,30 @@
 | **Equipamiento destacado**  | Interior deportivo AMG, asistencias avanzadas | Interior lujoso, tecnología avanzada, asistencias y confort premium |
 | **Peso**                    | Menor (coupé compacto)                    | Mayor (berlina grande)                     |
 | **Enfoque**                 | Deportividad y agilidad en coupé          | Potencia extrema y lujo en berlina grande |
+
+
+
+
+
+
+# **CONCESIONARIAS EN BERAZATEGUI**
+[![Texto alternativo](https://pbs.twimg.com/media/C1avK41WEAAfn8G.png)](https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://bremenbmw.com.ar/&ved=2ahUKEwjtuqjd362OAxUTrJUCHaPaNgoQFnoECB8QAQ&usg=AOvVaw0loDjM4p37BysscSue8mGy)
+
+[![Texto alternativo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTYoZwCTKQRZKtk2c7QX_uq_fg0m7Qr8cWdRg&s)](https://www.mbsimone.com.ar/)
+
+[![Texto alternativo](https://fotos.perfil.com/2021/07/27/trim/1140/641/dallas-car-1209931.jpg)](https://dallasmotors.com.ar/)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
